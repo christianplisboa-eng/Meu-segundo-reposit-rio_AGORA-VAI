@@ -1,0 +1,2 @@
+# Meu-segundo-reposit-rio_AGORA-VAI
+Como meu primeiro repositório tá totalmente bloqueado, ate para mim, por conta que o deixei privado, desta vez vou conseguir acessar o arquivo
